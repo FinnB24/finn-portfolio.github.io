@@ -1,1 +1,0 @@
-# finn-portfolio.github.io
